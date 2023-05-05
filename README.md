@@ -16,7 +16,8 @@ K305G刷机包共同研发者：鲁迅的霸权
 
 K305G资源链接：https://www.123pan.com/s/4wh8Vv-gdKbd.html
 
-K305G网站下载链接，第二个：http://154.40.45.92:5244/
+K305G网站下载链接，第二个：https://luxundexiaowu.top/
+
 
 欢迎加QQ群：597577642
 
